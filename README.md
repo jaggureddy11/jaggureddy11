@@ -1,4 +1,4 @@
-### Hi, I'm Jaggu 👋
+### Hi, I'm R Jagadishwar Reddy 👋
 
 I make cool stuff.
 
